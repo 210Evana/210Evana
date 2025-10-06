@@ -5,6 +5,7 @@
 - 📫 How to reach me evanajuma2003@gmail.com
 - 😄 Pronouns: ...She
 - ⚡ Fun fact: ...I just love new ideas
+- Author/Writer of novels and short stories as well
 
 <!---
 210Evana/210Evana is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
